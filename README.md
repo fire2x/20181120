@@ -132,8 +132,4 @@ https://www.youtube.com/watch?v=paGuUFTLRKs
 
 
 
-您的回答
-提交
-請勿利用 Google 表單送出密碼。
-Google 並未認可或建立這項內容。 檢舉濫用情形 - 服務條款
-Google 表單
+PSR
